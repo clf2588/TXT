@@ -13,9 +13,6 @@
 
 ## **长效节点**
 
-## Change log
-
-
 
 # https://paste.ee/r/2nQ6s/0
 

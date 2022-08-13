@@ -2,6 +2,8 @@
 
 # https://raw.githubusercontent.com/clf2588/TXT/v2/8-3
 
+**>https://paste.ee/r/lLOpq/0**
+
 ## **CLA链接*
 
 # https://paste.ee/r/3CRqy/0

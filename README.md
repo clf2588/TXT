@@ -12,11 +12,17 @@
 
 ## **CLA链接*
 
-# https://paste.ee/r/3CRqy/0
+# https://paste.ee/r/TNlky/0
 
-# https://paste.ee/r/NNBM9/0
+# https://paste.ee/r/0nm2g/0
 
-# https://paste.ee/r/NxzPE/0
+# https://paste.ee/r/NcWxG/0
+
+# https://paste.ee/r/kJL2A/0
+
+# https://paste.ee/r/YVtzP/0
+
+
 
 
 ## **长效节点**

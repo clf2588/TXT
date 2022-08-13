@@ -8,7 +8,7 @@
 
 >长效节点
 
-# ***https://paste.ee/r/2nQ6s/0
+# https://paste.ee/r/2nQ6s/0
 
 # https://paste.gg/p/anonymous/eda616f3110e4d88a350e7954f554938/files/38b2829f2f3a4834aa6d47dc482179ba/raw
 

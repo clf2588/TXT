@@ -2,32 +2,17 @@
 
 **https://raw.githubusercontent.com/clf2588/TXT/v2/8-3?token=GHSAT0AAAAAABXBHECYHJ3XFM5SMC3GAPJ6YXXND6A**
 
-**https://paste.ee/r/lLOpq/0**
-
-**https://paste.ee/r/fKLaN/0**
-
-**https://paste.ee/r/w2S6v/0**
-
 ## **CLA链接*
 
-# https://paste.ee/r/2R7pz/0
+# https://paste.ee/r/oncpZ/0
 
-# https://paste.ee/r/fdYQA/0
+# https://paste.ee/r/Zwgby/0
 
-# https://paste.ee/r/p9xNm/0
+# https://paste.ee/r/M9eEh/0
 
-# https://paste.ee/r/QaTwO/0
-
-# https://paste.ee/r/p0MjY/0
-
-# https://paste.ee/r/z9oJb/0
-
-# https://paste.ee/r/2R7pz/0
-
-# https://paste.ee/r/SQ8lD/0
+# https://paste.ee/r/n8SGm/0
 
 ## **长效节点**
-
 
 https://paste.ee/r/2nQ6s/0
 

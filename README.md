@@ -4,27 +4,31 @@
 
 ## **CLA链接*
 
-# https://paste.ee/r/oncpZ/0
+# https://paste.ee/r/mfM6P/0
 
-# https://paste.ee/r/Zwgby/0
-
-# https://paste.ee/r/M9eEh/0
-
-# https://paste.ee/r/n8SGm/0
+# https://paste.ee/r/QVJ5h/0
 
 ## **长效节点**
 
-https://paste.ee/r/2nQ6s/0
+https://paste.ee/r/SJP2F/0
 
-https://paste.gg/p/anonymous/eda616f3110e4d88a350e7954f554938/files/38b2829f2f3a4834aa6d47dc482179ba/raw
+https://paste.ee/r/ypbhM/0
 
-https://paste.ee/r/amFJc/0
+https://paste.ee/r/71SCe/0
 
-https://paste.ee/r/zNgVb/0
- 
-https://paste.gg/p/anonymous/3d2bf7a3efc14efea27dae873850c91f/files/ef7f578b3a8e473392f88197f7f8d12f/raw
+https://paste.ee/r/eV9Q5/0
 
-https://paste.ee/r/Uih7B/0
+https://paste.ee/r/JjYNT/0
+
+https://paste.gg/p/anonymous/49dfdfe107d1472d8a261da0d8069794/files/230d15b6cb1b43eeb69e89d7b2495693/raw
+
+https://paste.ee/r/ReONS/0
+
+https://paste.ee/r/608pO/0
+
+https://paste.gg/p/anonymous/cb4c49d6f8a343378f2e8c5f307ddbff/files/eb2a372e62ab4c00811f5769dd930f1a/raw
+
+https://paste.ee/r/RbsdS/0
 
 ## **UTUBE*
 

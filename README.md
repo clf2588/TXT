@@ -8,6 +8,8 @@
 
 # https://paste.ee/r/QVJ5h/0
 
+http://43.142.103.115:8888/down/FlJMYE8FmI5P 工具大师
+
 ## **长效节点**
 
 https://paste.ee/r/SJP2F/0

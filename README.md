@@ -10,6 +10,12 @@
 
 http://43.142.103.115:8888/down/FlJMYE8FmI5P 工具大师
 
+https://paste.ee/r/R6BoC/0
+
+https://paste.ee/r/rytB7/0
+
+https://paste.ee/r/nSvY4/0
+
 ## **长效节点**
 
 https://paste.ee/r/SJP2F/0

@@ -32,6 +32,6 @@ https://paste.ee/r/RbsdS/0
 
 ## **UTUBE*
 
-https://www.youtube.com/redirect?event=video_description&redir_token=QUFFLUhqbjdmSmJXYVo5OXAxdXJMWkg4YkFNSE5BMzJRZ3xBQ3Jtc0tuNVNDX0Vmb0FaM25rZmJfbFJqdzNBRnQ2UmE0MGI2LU5TOEsxR2ZyQmh1VnYyRm9xUHhoWVY0WmZtV2pid0pJQnRJSElkWWRpcmVDN2hWWTZyWW9tSHpEQmNGanZUTnU1dHFBV0N5WW82bVdlS3p3WQ&q=https%3A%2F%2Fwwz.lanzouv.com%2Fi43Ez09hotfa&v=MeMMSwQqvLs
+https://www.youtube.com/watch?v=MeMMSwQqvLs&t=457s
 
 

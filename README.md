@@ -6,7 +6,7 @@
 
 http://43.142.103.115:8888/down/FlJMYE8FmI5P 工具大师
 
-https://paste.ee/r/UYnqO/0
+RSSRN22BCN5EW2FY
 
 ## **长效节点**
 

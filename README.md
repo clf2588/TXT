@@ -6,7 +6,7 @@
 
 http://43.142.103.115:8888/down/FlJMYE8FmI5P 工具大师
 
-RSSRN22BCN5EW2FY
+PZEXSGCFXOEGW4GH
 
 ## **长效节点**
 
